@@ -1,4 +1,4 @@
-### <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif" width="35" height="35" /> MAYANK SINGLA/README.md
+### <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif" width="35" height="35" /> MAYANK SINGLA
 
 # 👋 Hey! Nice to see you.
 
